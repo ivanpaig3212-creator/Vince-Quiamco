@@ -1,2 +1,0 @@
-# Vince-Quiamco
-Niel Vince
